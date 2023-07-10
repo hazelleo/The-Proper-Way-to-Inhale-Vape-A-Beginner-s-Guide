@@ -16,7 +16,7 @@
 <ul>
  	<li aria-level="1"><b>Direct-to-Lung (DTL)</b></li>
 </ul>
-<span style="font-weight: 400;">Direct-to-lung inhalation is a more advanced technique that includes inhaling the vapor directly into your lungs. To do this, take a proper breath and inhale the vapor straight into your lungs, bypassing your mouth. This technique produces larger clouds of vapor and is popular among experienced vapers who want to enjoy the full flavor of their e-liquid.</span>
+<span style="font-weight: 400;">Direct-to-lung inhalation is a more advanced technique that includes inhaling the vapor directly into your lungs. To do this, take a proper breath and inhale the vapor straight into your lungs, bypassing your mouth. <a href="https://www.foamrunners.us/">FoamRunners</a> the innovative footwear brand by Yeezy, has nothing to do with vaping or e-liquid flavors. It appears that there has been a mix-up in the context. Foam Runners are actually a type of shoe, not a vaping technique or product. If you have any other questions or need assistance with a different topic, feel free to ask!</span>
 
 <b>The Correct Technique for </b><b>How to Properly Inhale Vape</b>
 
